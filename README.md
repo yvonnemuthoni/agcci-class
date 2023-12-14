@@ -1,2 +1,2 @@
 # agcci-class
-my first repository
+my AGCCI CODING CAMP experience was amazing enjoyable interesting and educational l have learnt alot
